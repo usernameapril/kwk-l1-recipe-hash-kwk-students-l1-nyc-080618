@@ -34,7 +34,7 @@ Here's a version of this Perfect 10 Cookie recipe so you can make some on your o
 ½ tsp. kosher salt  
 ½ tsp. baking powder  
 ¼ tsp. baking soda  
-½ tsp. Xanthan Gum   
+½ tsp. Xans Gum   
 ¼ cup  slivered almonds, lightly toasted  
 ¾ cup  mini dark chocolate chips  
 ½ cup  olive oil  
